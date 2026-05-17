@@ -1,6 +1,3 @@
-# PROFILE M4RT1N
-
-
 
 ##  Hi Everyone ! 
 
